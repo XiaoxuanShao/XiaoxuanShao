@@ -2,7 +2,7 @@
 
 🎓 B.Eng Mechanical Engineering at Southeast University (Nanjing, China)
 
-🎓 Currently looking for a PhD position in Robotics
+🎓 Currently looking for a PhD position
 
 📷 Photography, badminton, workout...
 
