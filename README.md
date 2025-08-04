@@ -6,8 +6,6 @@
 
 📷 Photography, badminton, workout...
 
-🐈 Keeping two cats now!
-
 📮 xiaoxuan.shao@rwth-aachen.de
 
 💼 [linkedin.com/in/xiaoxuan-shao/](https://www.linkedin.com/in/xiaoxuan-shao/)
